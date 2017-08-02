@@ -1,0 +1,1 @@
+Saudau balandzius su ragatke is kosmoso stoties.
